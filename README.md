@@ -1,0 +1,4 @@
+William A Thompson IV or "WATIV" is a keyboard artist, composer and multi-instrumentalist of the American musical tradition.  However, there is little about his musical career that could be called traditional.  This unique music has attracted the attention of much of the mainstream as well as alternative media to include NPR's "All Things Considered" and the BBC to name a few.   His work has been profoundly impacted by his one year tour of duty spent in Baghdad during the Iraq War in 2004 as a Counter- intelligence Agent and created the very first album released from a combat theater.  Given this truly unique experience in combination with Thompson's southern musical upbringing, it’s not uncommon to hear him kicking bass in a funky organ trio one night and playing free jazz or singing and playing orignal folk music the next.  There is little to compare to his music which has made it's way from the Mississippi Delta, to New Orleans, to Baghdad, and the world.
+
+ 
+
